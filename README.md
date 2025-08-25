@@ -1,1 +1,2 @@
-First step to the success
+Fucking hell programming is hard lol
+
